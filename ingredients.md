@@ -1,9 +1,13 @@
-2 1/4 cups all purpose flour
-1 teaspoon baking soda
-1/2 teaspoon salt
-1 cup butter, softened
-3/4 cup granulated sugar
-3/4 cup packed brown sugar
-1 egg
-1 teaspoon vanilla essence
-2 cups semisweet chocolate chips
+Dry Ingredients
+1) 3/2 cup maida
+2) cup of cocoa powder
+3)1 tablespoon of baking powder
+4)1 teaspoon of baking soda
+5)pinch of salt
+6)1 cup of castor sugar
+
+Wet Ingredients
+1) 3/4 cup of curd
+2) 1/2 cup of oil
+3) 1 tablespoon vanilla essence
+4)1 cup of milk
